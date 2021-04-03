@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @msbectron
+- 👀 I’m interested in technology, creativity - music, travel, and continuous leaarning.
+- 🌱 I’m currently learning Spanish and a Graduate Certificate in IT
+- 📫 How to reach me www.linkedin.com/in/rebecca-fitzgibbon
